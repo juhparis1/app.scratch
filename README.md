@@ -1,5 +1,16 @@
 # Aulas-PPZ 2024 #
 < Meu nome é Julie >
-Estudando programação através da plataforma Alura
 
-Minha opnião é que o alura é uma plataforma de programação boa porem um pouco complicado para pessoas que não entende 
+Aulas de informática escola Pedrina Pires Zadra 2024, 3 série A 
+
+- Estamos estudando programação, Java Script
+
+-  dormir, fazer comida 
+
+ voce pode entrar em contato comigo para:
+
+ -dar banho em seus animais
+
+ como entrar em contato: 00001071245806sp@al.educacao.sp.gov.br
+
+ https://tenor.com/pt-BR/view/lazy-cat-stairs-gif-20611362
