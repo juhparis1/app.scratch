@@ -13,4 +13,7 @@ Aulas de informática escola Pedrina Pires Zadra 2024, 3 série A
 
  como entrar em contato: 00001071245806sp@al.educacao.sp.gov.br
 
+ ![](https://media1.tenor.com/m/0kjlf2EUEXcAAAAd/lazy-cat.gif) 
  https://tenor.com/pt-BR/view/lazy-cat-stairs-gif-20611362
+ 
+
